@@ -1,1 +1,1 @@
-my name is mohamed nsraldin adam
+my name nsraldin adam
